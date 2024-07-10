@@ -1,6 +1,6 @@
 # Apoorva Bhatnagar
 
-**MSBA '25 | Data Scientist | Finance Specialist**
+**MSBA '25 @ Nanyang Technological University | Econometrics undergrad**
 
 ---
 
