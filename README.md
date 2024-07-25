@@ -1,6 +1,6 @@
 # Apoorva Bhatnagar
 
-**MSBA '25 @ Nanyang Technological University | Econometrics Undergrad**
+**MSBA '25 @ Nanyang Technological University | Economics Undergrad**
 
 ---
 
